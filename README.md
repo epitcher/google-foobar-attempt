@@ -4,7 +4,7 @@
 
 **Level 2 -** If I recall there was 3 tasks in this level, observe I only have two files in there, again if anyone knows what the other was, let me know!
 
-**Level 3 -** This is where things really began to require thinking about for a while, I found myself reading the task & deliverating until the timer was almost up each time
+**Level 3 -** This is where things really began to require thinking about for a while, I found myself reading the task & deliberating away from keyboard until the timer was almost up each time
 
 **Level 4 -** @todo
 
